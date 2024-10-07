@@ -2,7 +2,7 @@
 - 👀 I’m interested in exploring and creating new things
 - 🌱 I’m currently learning Bsc in EEE
 - 💞️ I’m looking to collaborate on researchers
-- 📫 How to reach me sadiashara143@gmail.com
+- 📫 How to reach me 22-48622-3@student.aiub.edu
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Crazy combination 
 
